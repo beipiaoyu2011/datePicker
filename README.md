@@ -1,1 +1,9 @@
-![](http://i.imgur.com/rshhDIw.png)
+支持中文 支持初始化日期
+
+----------
+
+![](http://i.imgur.com/XOL9zzS.png)
+
+
+----------
+喜欢可以下载使用！
